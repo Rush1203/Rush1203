@@ -61,7 +61,7 @@
 
 ## 🌐 Connect With Me
 
-- 📧 Email: rushshah1203@gmail.com@email.com
+- 📧 Email: rushshah1203@gmail.com
 
 ---
 
